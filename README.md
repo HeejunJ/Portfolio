@@ -1,2 +1,0 @@
-# Portfolio
-HeejunJang's Portfolio
